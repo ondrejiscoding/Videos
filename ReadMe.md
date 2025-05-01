@@ -1,1 +1,1 @@
-Hello! This is a branch is for my **videos**. Here you can get the access to my Discord server, and that's the only thing so far. But I'll expand it here by making new videos, where's a program showcased... or just used. **So be ready for that!**
+Hello! This *is* a branch for my **videos**. Here you can get the access to my Discord server, and that's the only thing so far. But I'll expand it here by making new videos, where's a program showcased... or just used. **So be ready for that!**
